@@ -3,7 +3,7 @@
     </a>
 HELLO ! My Name is Mark or Mason ! <P>
 Feel free to INT !!
-I like Trigun , Mha , GF , and OP . 
+I like Trigun , Mha , GF , BSD and OP . 
 
 ![Image](https://github.com/user-attachments/assets/f72d17cf-6b8e-47b0-b5b6-4c6dc6d1eacf)
 
